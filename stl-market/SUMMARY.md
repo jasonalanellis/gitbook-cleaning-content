@@ -6,3 +6,4 @@
 * [The Right Way to Master Parking Lot Striping St Louis (Most People Skip Step 3)](the-right-way-to-master-parking-lot-striping-st-louis-most-people-skip-step-3.md)
 * [Unmasking the Enemy: Your St. Louis Guide to Fixing Dry Rot vs Wet Rot for Good](unmasking-the-enemy-your-st-louis-guide-to-fixing-dry-rot-vs-wet-rot-for-good.md)
 * [The Right Way to Tackle Removing Dust After Renovation (Most People Skip Step 3)](the-right-way-to-tackle-removing-dust-after-renovation-most-people-skip-step-3.md)
+* [Mastering Your Move-In Cleaning St Louis: The Pro's Guide (Most People Skip Step 4)](mastering-your-move-in-cleaning-st-louis-the-pros-guide-most-people-skip-step-4.md)
