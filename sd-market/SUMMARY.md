@@ -7,3 +7,4 @@
 * [The Ultimate Deep Cleaning Checklist Before Selling House (Most People Miss Step 4)](the-ultimate-deep-cleaning-checklist-before-selling-house-most-people-miss-step-.md)
 * [The Right Way to Work With an After Construction Cleaning Company San Diego (Most People Skip Step 3)](the-right-way-to-work-with-an-after-construction-cleaning-company-san-diego-most.md)
 * [Why Coastal Homes in Carmel Valley Lose the Battle Against Salt Air — And What Actually Stops the Damage](why-coastal-homes-in-carmel-valley-lose-the-battle-against-salt-air-and-what-act.md)
+* [Weekly, Biweekly or Monthly? How to Pick a House Cleaning Schedule for a San Diego Home](weekly-biweekly-or-monthly-how-to-pick-a-house-cleaning-schedule-for-a-san-diego.md)
