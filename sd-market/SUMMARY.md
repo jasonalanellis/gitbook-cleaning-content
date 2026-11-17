@@ -9,3 +9,4 @@
 * [Why Coastal Homes in Carmel Valley Lose the Battle Against Salt Air — And What Actually Stops the Damage](why-coastal-homes-in-carmel-valley-lose-the-battle-against-salt-air-and-what-act.md)
 * [Weekly, Biweekly or Monthly? How to Pick a House Cleaning Schedule for a San Diego Home](weekly-biweekly-or-monthly-how-to-pick-a-house-cleaning-schedule-for-a-san-diego.md)
 * [A Turnover Cleaning Checklist for San Diego Short-Term Rental Hosts](a-turnover-cleaning-checklist-for-san-diego-short-term-rental-hosts.md)
+* [House Cleaning Pacific Beach: How Bravo Maids Matches the Work to the Coast](house-cleaning-pacific-beach-how-bravo-maids-matches-the-work-to-the-coast.md)
