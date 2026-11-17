@@ -1,18 +1,18 @@
 # House Cleaning Pacific Beach: How Bravo Maids Matches the Work to the Coast
 
-House cleaning Pacific Beach homes starts with one honest fact: the beach always comes home with you. I'm Jason Ellis, I own Bravo Maids, and I learned this the fun way, with my nephews and a bag of putters.
+House cleaning Pacific Beach homes starts with one honest fact: the beach always comes home with you. I'm Jason Ellis, I own Bravo Maids, and I'd rather spend my weekends with family than with a mop. Most people I talk to feel the same way.
 
-## The Belmont Park rule: the sand rides home
+## Why I hire out the cleaning, too
 
-A lot of my weekends end up the same way. I pick up my nephews, we head down to [Tiki Town Mini Golf at Belmont Park](https://www.belmontpark.com/amusement-parks-san-diego) in Mission Beach, and we play a round. Then we play another round, because somebody lost and wants a rematch. Usually that somebody is me.
+I take my nephews to play [Tiki Town Mini Golf at Belmont Park](https://www.belmontpark.com/amusement-parks-san-diego) all the time. They're 7 and 10, and they beat me. Every time. I tell them I let them win. They tell me that's what people who lose always say.
 
 ![Pirate ship climbing structure at Belmont Park in Mission Beach, San Diego](https://cdn.shopify.com/s/files/1/0776/8444/1245/files/belmont-park-pirate-ship.jpg?v=1794877061)
 
-I tell them I let them win. They tell me that is what people who lose always say. They are not wrong.
+They won't be 7 and 10 forever. Someday they'll be too cool to golf with their uncle. Until then, I want my Saturdays at Belmont, not behind a vacuum.
 
-After golf we walk the boardwalk a bit, and somebody always ends up in the sand. By the time we get back to the car, there is sand in the shoes, sand in the socks, and sand in places sand has no business being. I have found sand in the cup holder. I'm not sure how. I'm not sure I want to know.
+That's the real reason to hire a cleaner. Life near the beach fills a weekend fast. Let us take care of the floors and bathrooms so your free time goes to the people who matter.
 
-That's my favorite part of living by the coast. It's also the part that shows up on your floor the next morning. If you live in Pacific Beach, you already know this. You don't have to go to Belmont Park for it. A walk to Crystal Pier does the job. So does one trip to the boardwalk with a dog.
+Beach days are their own story. In Pacific Beach, one walk to Crystal Pier or one trip to the boardwalk with a dog is all it takes for sand to come home in shoes and socks.
 
 ## What beach life does to a Pacific Beach home
 
