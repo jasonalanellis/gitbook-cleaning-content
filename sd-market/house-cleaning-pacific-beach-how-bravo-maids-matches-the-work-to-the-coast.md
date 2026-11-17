@@ -6,7 +6,7 @@ House cleaning Pacific Beach homes starts with one honest fact: the beach always
 
 A lot of my weekends end up the same way. I pick up my nephews, we head down to [Tiki Town Mini Golf at Belmont Park](https://www.belmontpark.com/amusement-parks-san-diego) in Mission Beach, and we play a round. Then we play another round, because somebody lost and wants a rematch. Usually that somebody is me.
 
-![Pirate ship climbing structure at Belmont Park in Mission Beach, San Diego](.gitbook/assets/belmont-park-pirate-ship.jpg)
+![Pirate ship climbing structure at Belmont Park in Mission Beach, San Diego](https://cdn.shopify.com/s/files/1/0776/8444/1245/files/belmont-park-pirate-ship.jpg?v=1794877061)
 
 I tell them I let them win. They tell me that is what people who lose always say. They are not wrong.
 
